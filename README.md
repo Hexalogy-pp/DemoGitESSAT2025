@@ -14,3 +14,4 @@ i'm the new person please accept the request SEBAA
 # Aissam is active 
 # Chaimaa is active now 
 # Iyad Atig is active now
+# Rezig is HERE, Let's goooo
